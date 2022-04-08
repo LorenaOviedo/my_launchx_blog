@@ -9,7 +9,7 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-Soy Lorena, me encanta aprender, amante de los gatos, la música y por supuesto, el café y mi color favorito es el rosa. En mis tiempos libres me gusta ver realities shows de respotería y pasar tiempo con mis tres gatos gatos y mi chihuahua.
+Soy Lorena, me encanta aprender, amante de los gatos, la música y por supuesto, el café. En mis tiempos libres me gusta ver realities shows de respotería y pasar tiempo con mis tres gatos gatos y mi chihuahua.
 
 Color favorito:
 
