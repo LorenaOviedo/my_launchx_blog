@@ -9,13 +9,23 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+Soy Lorena, me encanta aprender, amante de los gatos, la música y por supuesto, el café y mi color favorito es el rosa. En mis tiempos libres me gusta ver realities shows de respotería y pasar tiempo con mis tres gatos gatos y mi chihuahua.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
+Color favorito:
 
+- Rosa
+
+Me gusta la música de:
+
+- Interpol
+- Kim Petras
+- Taylor Swift
+- Kelly Machine Gun
+- Grimes
+
+Mis mascotas se llaman:
+
+- Gatote
+- Gigi
+- Rayita
+- Katy
