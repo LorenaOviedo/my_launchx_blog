@@ -1,6 +1,6 @@
 ---
 title: Launch X Bitácora de viaje
-description: Soy Lorena, me encanta aprender, amante de los gatos, la música y por supuesto, el café y mi color favorito es el rosa. En mis tiempos libres me gusta ver realities shows de respotería y pasar tiempo con mis tres gatos gatos y mi chihuahua. 
+description: Mis expectativas en la misión Backend 
 ---
 
 Hola ✌️  soy el explorer Lorena y este es mi blog personal donde compartiré mis aventuras de Launch X.
